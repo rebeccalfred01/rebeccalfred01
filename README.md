@@ -1,4 +1,4 @@
-### [Nihal](https://github.com/nihal-ramaswamy/) is the best
+### [Nihal](https://github.com/nihal-ramaswamy/) is the worst
 
 <!--
 **rebeccalfred01/rebeccalfred01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
